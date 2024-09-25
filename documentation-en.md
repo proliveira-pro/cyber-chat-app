@@ -31,4 +31,3 @@ Access to the Cyber-Chat-App is strictly monitored, and any unauthorized use wil
 
 Thank you for your cooperation!
 
--ion!
